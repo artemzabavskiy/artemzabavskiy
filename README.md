@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Artem
 - 👀 I’m interested in sustainable development.
 - 🌱 I’m currently learning iOS development.
-- 📫 artem.zabavskiy@gmail.com
+- 📫 artem.zabavskiy24@gmail.com
 - 😄 Pronouns: i am male and attracted to female so he/his.
 - ⚡ Fun fact: butterflies taste with their feet.
 
